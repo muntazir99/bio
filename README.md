@@ -1,5 +1,5 @@
-Hi, I’m Muntazir Jahangir
-Creative & driven graduation student with some extent of coding & comm. skills.
+-Hi, I’m Muntazir Jahangir
+-Creative & driven graduation student with some extent of coding & comm. skills.
 https://linktr.ee/muntazir9934
 
 <!---
